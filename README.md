@@ -38,8 +38,3 @@ With a background in environmental science, industrial chemistry, petroleum oper
 - Great at Multitasking  
 - Independent & Excellent Team Player  
 
----
-
-## Projects / Repositories
-_To be added as soon as possible._
-
